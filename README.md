@@ -21,3 +21,7 @@ Copy the raw link from this repository and paste it into your executor.
 
 ## 👨‍💻 Author
 Made with ❤️ by **sega1games12-alt**
+<img width="1920" height="1080" alt="RobloxScreenShot20261030_193204624" src="https://github.com/user-attachments/assets/c6a0b9d0-6771-4203-a20f-b96a430f1ad6" />
+<img width="1920" height="1080" alt="RobloxScreenShot20261030_193109543" src="https://github.com/user-attachments/assets/8a36e8b9-6050-47f3-9962-c293c61d3bc2" />
+<img width="1920" height="1080" alt="RobloxScreenShot20261030_192951334" src="https://github.com/user-attachments/assets/464e8ab8-add9-4cc0-94a7-f6caf37d3464" />
+<img width="1920" height="1080" alt="RobloxScreenShot20261030_192856667" src="https://github.com/user-attachments/assets/e5d61435-b121-4f05-a2a6-664ec563453c" />
